@@ -1,4 +1,4 @@
 wangjin3
-wnagjin3@engr.orst.edu
+wangjin3@engr.orst.edu
 pink
 The Who
